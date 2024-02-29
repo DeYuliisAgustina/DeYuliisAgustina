@@ -1,7 +1,7 @@
 
 ![Pixels Neon GIF - Pixels Neon Old - Discover   Share GIFs](https://github.com/DeYuliisAgustina2AM/DeYuliisAgustina2AM/assets/138722535/5f34e70b-bf8c-43a8-8781-82c50471fe0e)
 <h1 align="center">Agustina De Yuliis</h1>
-<h3 align="center">Living is coding</h3>
+<h3 align="center">Ingeniería en Sistemas</h3>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
