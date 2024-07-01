@@ -1,8 +1,8 @@
 ![𝓪𝓷𝓲𝓶𝓮](https://github.com/DeYuliisAgustina2AM/DeYuliisAgustina2AM/assets/138722535/03c6504e-e05f-402b-8f09-6a7ded7f09b9)
 
 
-<h1 align="center">Agustina De Yuliis</h1>
-<h3 align="center">🌸Ingeniería en Sistemas🌸</h3>
+<h1 align="center">🌸Agustina De Yuliis🌸</h1>
+<h3 align="center">Ingeniería en Sistemas</h3>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
